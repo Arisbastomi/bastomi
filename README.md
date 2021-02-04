@@ -1,0 +1,2 @@
+# bastomi
+Kerja sama
